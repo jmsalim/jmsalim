@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @jmsalim
 - 🦎🛴 I’m currently working as a intern web developer @ Newt Mobility.
 - 🌱 I’m currently honing my skills @ UCF
-- 📫 How to reach me jmsalim@knights.ucf.edu.
+- 📫 How to reach me jmsalimknights@gmail.com
